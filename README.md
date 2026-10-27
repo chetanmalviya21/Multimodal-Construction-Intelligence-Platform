@@ -1,1 +1,0 @@
-# Multimodal-Construction-Intelligence-Platform
